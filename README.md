@@ -1,5 +1,5 @@
 - 👋 hi, i’m aditya singh.
-- 👀 focused on product, marketing, finance
+- 👀 focused on product, marketing, strategy
 - 🌱 building in stealth
 - 📫 reach me @0xad1 on twitter
 
